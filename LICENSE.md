@@ -1,4 +1,4 @@
-
+elite PureVPN Module | multi-device-support + custom-configurations offers the most advanced PureVPN module, with multi-device-support and custom-configurations. Ideal for users
 
 
 
